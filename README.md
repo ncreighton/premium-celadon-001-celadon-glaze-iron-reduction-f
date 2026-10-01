@@ -1,0 +1,2 @@
+# premium-celadon-001-celadon-glaze-iron-reduction-f
+Professional heritage-pottery-glazes Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Celadon Glaze Iron Reduction Firing — fully configured and ready to use - Pre-built d
